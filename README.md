@@ -12,4 +12,4 @@ Meu nome e Osmael
 
 -  ![](htps://media.tenor.com/OdqVF5eOI4UAAAAi/minato-naruto.gif)
 
--  https://media.tenor.com/OdqVF5eOI4UAAAAi/minato-naruto.gif
+-  ![](https://media.tenor.com/OdqVF5eOI4UAAAAi/minato-naruto.gif)
